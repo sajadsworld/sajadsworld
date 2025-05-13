@@ -37,7 +37,7 @@ I'm also super interested in **Artificial Intelligence** and **Data Science**, a
 
 If you want to say hi, ask questions, or just chat tech stuff, feel free to reach out:
 
-- Email: [sajadkholqi0@example.com] (Coming soon!)
+- Email: [] (Coming soon!)
 - Instagram: [] (Coming soon!)
 - X: [] (Coming soon!)
 
